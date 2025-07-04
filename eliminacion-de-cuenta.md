@@ -16,6 +16,3 @@ Para eliminar tu cuenta de Saber GO:
 
 Tiempo estimado de eliminación: **Máximo 7 días hábiles**.
 
----
-
-📧 **Contacto**: soporte@sabergo.com
